@@ -1,4 +1,12 @@
-## Hi there 👋
+Loki Laufeyson
+
+⊱ ۫ ׅ ✧ Kip / Loki !!
+
+ˋ°•*⁀➷ Basic DNI.. Idrk what else to add . . .
+
+⌞ Fandoms I'm In ⌝
+
+★࿐࿔ EDDSWORLD, CREEPYPASTA, FREAK SHOW, SBG, MOTM, DC, CYBERPUNK, GACHIAKUTA, MOUTHWASHING, BINDING OF ISSAC, FNAF, SANDERS SIDES, ANDYS APPLE FARM, NEW SAINTS STREET , CHAIN-SMOKER CAT , A DATE WITH DEATH , SOUTHPARK , MARVEL , JJK , BATIM , DELTARUNE , BSD , CREEPYPASTA , ETC. ༄.°## Hi there 👋
 
 <!--
 **Kip-LokiLaufeyson/Kip-LokiLaufeyson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
